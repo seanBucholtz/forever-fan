@@ -1,2 +1,2 @@
 # forever-fan
-Why not keep your paid-for content FOREVER!
+Why not keep your paid content FOREVER!
